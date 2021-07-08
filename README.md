@@ -1,3 +1,0 @@
-# MARVEL
-# MARTEN
-# KAPOOS
